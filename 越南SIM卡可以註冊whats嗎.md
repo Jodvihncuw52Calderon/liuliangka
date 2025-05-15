@@ -1,4 +1,4 @@
-**越南SIM卡可以注册WhatsApp吗？** [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+**越南SIM卡可以注册WhatsApp吗？** [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在当今数字化的时代，智能手机和即时通讯软件已经成为我们日常生活中不可或缺的一部分。而其中，WhatsApp作为全球最受欢迎的即时通讯应用之一，以其强大的功能和便捷的操作吸引了无数用户。然而，对于许多计划前往越南旅游或工作的朋友来说，一个问题常常困扰着他们：越南的SIM卡是否能够注册并正常使用WhatsApp呢？
 
@@ -18,4 +18,4 @@
 
 总之，无论你是短期访问还是长期居住，越南的SIM卡都能够完美适配WhatsApp，让你随时随地畅享即时通讯的乐趣。所以别再犹豫啦，快去当地的营业厅挑选一张适合自己的SIM卡吧！相信我，这将是你旅途中最明智的选择之一。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

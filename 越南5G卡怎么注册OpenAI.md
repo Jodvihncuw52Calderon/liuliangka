@@ -1,4 +1,4 @@
-**越南5G卡怎么注册OpenAI？轻松几步搞定！[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**越南5G卡怎么注册OpenAI？轻松几步搞定！[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好，今天要跟大家分享一个超级实用的小技巧——如何用越南5G卡注册OpenAI账号。这事儿听起来可能有点复杂，但实际上只要跟着步骤来，分分钟就能搞定！如果你正苦恼于没有信用卡或者国际手机号无法注册OpenAI，那这篇文章就是为你量身定制的。
 
@@ -42,4 +42,4 @@
 
 最后再提醒一下，无论采取哪种方式，都要遵守相关法律法规，合理合法地使用这些高科技产品。祝大家都能顺利开启智能生活新篇章！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
