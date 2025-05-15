@@ -1,4 +1,4 @@
-# 西班牙上网卡怎麽註冊ChatGPT [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 西班牙上网卡怎麽註冊ChatGPT [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 大家好呀！今天咱们来聊聊一个非常实用的话题——如何在西班牙使用上网卡注册并使用ChatGPT。如果你最近有计划去西班牙旅行或者长期居住，又或者是单纯对这个话题感兴趣，这篇文章一定适合你！
 
@@ -47,4 +47,4 @@
 
 好了朋友们，今天的分享就到这里啦！如果你还有其他关于西班牙旅行或者其他相关方面的问题，欢迎随时留言交流哦~ 最后再次提醒大家关注我们的频道，获取更多精彩内容哦！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
