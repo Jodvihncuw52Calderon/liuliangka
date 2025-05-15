@@ -1,4 +1,4 @@
-# 西班牙远游卡可以註冊OpenAI嗎[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 西班牙远游卡可以註冊OpenAI嗎[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 最近，有不少人问我关于西班牙远游卡是否能注册OpenAI的问题。说实话，这个问题看似简单，但实际上涉及到很多细节和背景知识。作为一个喜欢分享信息的人，我觉得有必要为大家详细解答一下。无论是为了满足好奇心，还是为了实际操作，这篇文章都会帮到你。
 
@@ -42,4 +42,4 @@
 
 无论你最终选择了哪种方式，都祝愿你能成功注册OpenAI并享受到先进的AI技术带来的便利。如果你还有其他疑问，欢迎随时留言讨论。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
