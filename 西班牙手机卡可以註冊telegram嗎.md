@@ -1,4 +1,4 @@
-**西班牙手机卡可以注册Telegram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**西班牙手机卡可以注册Telegram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今数字化飞速发展的时代，即时通讯软件已经成为人们生活中不可或缺的一部分。而Telegram作为一款功能强大且广受欢迎的通讯工具，自然也吸引了许多用户的关注。然而，对于那些居住在西班牙或其他国家的人来说，可能会有一个疑问：使用西班牙的手机卡是否能够顺利注册Telegram呢？
 
@@ -16,4 +16,4 @@
 
 综上所述，西班牙手机卡完全可以用来注册Telegram。只要保证手机卡处于正常工作状态，并遵循相关指引顺利完成注册过程即可享受这款优秀的通讯工具带来的便利与乐趣啦！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

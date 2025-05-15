@@ -1,4 +1,4 @@
-**西班牙数据卡可以注册TikTok吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**西班牙数据卡可以注册TikTok吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 近年来，短视频平台TikTok在全球范围内掀起了一股热潮。无论是年轻人还是长辈，都纷纷加入这个充满创意和乐趣的社交圈。而如果你是一位身处西班牙的用户，可能会有一个疑问：我可以用西班牙的数据卡注册TikTok吗？
 
@@ -47,4 +47,4 @@
 
 最后提醒大家，在享受科技带来的便利的同时，也要学会合理安排时间，避免沉迷其中影响正常生活。希望大家能够在TikTok的世界里找到属于自己的快乐！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
