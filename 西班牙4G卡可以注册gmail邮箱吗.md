@@ -1,4 +1,4 @@
-# 西班牙4G卡可以注册gmail邮箱吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 西班牙4G卡可以注册gmail邮箱吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 最近有不少朋友问我：“我在西班牙买了个4G卡，可以用它来注册gmail邮箱吗？”其实这个问题很常见，尤其是在国外旅行或者长期居住的人群中。那么今天就来给大家详细解答一下这个问题。
 
@@ -18,4 +18,4 @@
 
 最后再提醒大家一句：无论是在哪里使用何种设备进行操作，安全始终是最重要的一环。希望每位朋友都能够妥善管理好自己的电子邮箱，让它成为我们生活工作中不可或缺的好帮手。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
