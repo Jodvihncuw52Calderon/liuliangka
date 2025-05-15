@@ -1,4 +1,4 @@
-# 葡萄牙旅游卡怎麽註冊google [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 葡萄牙旅游卡怎麽註冊google [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 如果你计划前往葡萄牙旅行，那么拥有一张葡萄牙旅游卡（Portugal Travel Card）无疑会让你的旅程更加便捷和愉快。这张卡不仅能让你轻松乘坐公共交通工具，还能享受众多景点的折扣优惠。不过，对于一些朋友来说，如何将这张卡绑定到Google Pay上可能是一个小挑战。今天，我们就来详细聊聊如何注册并使用葡萄牙旅游卡在Google上进行支付。
 
@@ -45,4 +45,4 @@
 
 无论是从实用性还是便利性角度来看，将葡萄牙旅游卡绑定到Google Pay都是非常值得推荐的做法。它不仅简化了支付流程，还为我们带来了更多灵活性。希望这篇文章能帮助到那些即将踏上葡萄牙之旅的朋友，让大家都能享受到现代化科技带来的便捷生活。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

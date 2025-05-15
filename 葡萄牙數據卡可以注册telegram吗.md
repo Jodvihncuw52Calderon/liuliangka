@@ -1,4 +1,4 @@
-# 葡萄牙数据卡能否注册Telegram？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 葡萄牙数据卡能否注册Telegram？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在当今数字化时代，即时通讯软件已经成为我们日常生活中不可或缺的一部分。而提到即时通讯应用，Telegram无疑是一个绕不开的话题。作为一个功能强大、隐私保护严密的聊天工具，Telegram在全球范围内拥有庞大的用户群体。然而，对于一些海外用户来说，尤其是在没有本地SIM卡的情况下，是否能够使用葡萄牙数据卡注册Telegram便成为了一个备受关注的问题。
 
@@ -16,4 +16,4 @@
 
 最后再提醒一句：虽然注册过程本身并不复杂，但为了长期使用体验考虑，建议大家尽量选择稳定可靠的网络环境。毕竟谁也不想因为一时疏忽而错过重要消息吧？
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
