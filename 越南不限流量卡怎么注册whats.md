@@ -1,4 +1,4 @@
-# 越南不限流量卡怎么注册whats [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 越南不限流量卡怎么注册whats [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 提到越南，很多人可能会想到那里的美食、海滩和独特的文化。不过，对于那些需要在越南使用手机上网或者与家人朋友保持联系的人来说，选择一张合适的SIM卡就显得尤为重要了。尤其是现在，随着社交媒体的普及，WhatsApp（简称“whats”）已经成为许多人日常沟通的重要工具之一。那么问题来了：如果你刚到越南，手头只有一张越南的不限流量卡，该如何注册WhatsApp呢？
 
@@ -54,4 +54,4 @@
 
 最后再次提醒大家，在享受便捷服务的同时也要注意网络安全和个人信息保护哦！希望每位读者都能顺利开启属于自己的跨境社交之旅~ 
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
